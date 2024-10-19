@@ -16,7 +16,7 @@ Hack Blox Fruit là phiên bản MOD của game Roblox, bằng cách dùng các 
 ![image](https://github.com/user-attachments/assets/d9119f07-fc4d-4d5c-9038-6113fdd34c7e)
 
 - Nếu có yêu cầu get key, Xem cách get key phía dưới
-- Sau đó, hack thôi, Xem thêm các script dùng để hack [tại đây](https://bom.so/PsWeYu)
+- Sau đó, hack thôi, Xem thêm các script dùng để hack [tại đây](https://phanmemnet.com/hack-roblox-vng-roblox-quoc-te-moi-nhat-v2-642-khong-cai-de-100/)
 ### Với bản VNG
 
 - Cần tải Fluxus V2.642 VNG + Roblox VNG Login ở trên
@@ -29,3 +29,6 @@ Hack Blox Fruit là phiên bản MOD của game Roblox, bằng cách dùng các 
 - Mở Roblox lên
 - Nó yêu cầu get key, Xem cách get key phía dưới
 - Sau đó, hack thôi, Xem thêm các script dùng để hack [tại đây](https://bom.so/PsWeYu)
+![image](https://github.com/user-attachments/assets/ee7ea51d-e2a3-45e8-8b2c-c9a2f408df37)
+
+
