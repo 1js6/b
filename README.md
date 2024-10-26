@@ -20,20 +20,32 @@ Link tải Roblox VNG Login V2.647: [**DOWNLOAD**](https://phanmemnet.com/hack-r
 - Mở Roblox lên, đăng nhập, có Fluxus sẵn
 ![image](https://github.com/user-attachments/assets/d9119f07-fc4d-4d5c-9038-6113fdd34c7e)
 
-- Nếu có yêu cầu get key, Xem cách get key phía dưới
+- Nếu có yêu cầu get key, Xem cách get key [ở đây](https://phanmemnet.com/hack-roblox-vng-roblox-quoc-te-moi-nhat-v2-642-khong-cai-de-100/), còn không yêu cầu thì thôi
 - Sau đó, hack thôi, Xem thêm các script dùng để hack [tại đây](https://phanmemnet.com/hack-roblox-vng-roblox-quoc-te-moi-nhat-v2-642-khong-cai-de-100/)
+- Nhấn vào nút Excecutor, nhập script vào
+
+  ![image](https://github.com/user-attachments/assets/aa9c5a0d-feb7-41f2-86e9-118eba3b9aef)
+
+  ![image](https://github.com/user-attachments/assets/f627b56d-ac55-40d1-bbfd-1398977660c7)
+
+
 ### Với bản VNG
 
 - Cần tải Fluxus V2.647 VNG + Roblox VNG Login ở trên
-- Cài Fluxus V2.647 VNG
-- Mở Roblox lên, để đó
 - Cài đặt Roblox VNG Login
 - Sau khi cài xong có Roblox VNG
-- Đăng nhập vào Roblox
-- Lại cài lại Fluxus V2.647 VNG lần nữa
+- Đăng nhập vào Roblox VNG
+- Sau đó cài đặt đè file Fluxus V2.647 VNG
 - Mở Roblox lên
-- Nó yêu cầu get key, Xem cách get key phía dưới
+- Nó ra cái thông báo yêu cầu VNG thì nhấn nút Back trên điện thoại để bỏ thông báo đi nhé
+- Nếu có yêu cầu get key, Xem cách get key [ở đây](https://phanmemnet.com/hack-roblox-vng-roblox-quoc-te-moi-nhat-v2-642-khong-cai-de-100/), còn không yêu cầu thì thôi
+- Đây là bản chính thức nên không có lỗi nào, và rất an toàn nhé- 
 - Sau đó, hack thôi, Xem thêm các script dùng để hack [tại đây](https://phanmemnet.com/hack-roblox-vng-roblox-quoc-te-moi-nhat-v2-642-khong-cai-de-100/)
+- Nhấn vào nút Excecutor, nhập script vào
+
+  ![image](https://github.com/user-attachments/assets/aa9c5a0d-feb7-41f2-86e9-118eba3b9aef)
+
+  ![image](https://github.com/user-attachments/assets/f627b56d-ac55-40d1-bbfd-1398977660c7)
   
 ![image](https://github.com/user-attachments/assets/ee7ea51d-e2a3-45e8-8b2c-c9a2f408df37)
 
